@@ -1,1 +1,1 @@
-# sevgiliye-af-mesaji
+isterseniz kod kısmını düzenleyebilirsiniz.
